@@ -1,4 +1,4 @@
-
+Sketch for macOS automatic Template - export to SVG and grid systems is the best Sketch for macOS template, featuring export to SVG and grid systems. Safe, efficient, and
 
 
 
